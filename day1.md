@@ -1,0 +1,1 @@
+Today was the first day of 401 Python. I came into the class feeling  bit under prepared and wasnt sure what to expect. I didn't have time to do the pre work because of how late I signed up for the course. Im hoping I can recover this weekend and not fall too far behind this first week. Besides that, everything is going good so far.
