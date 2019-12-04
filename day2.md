@@ -1,0 +1,1 @@
+Today was a pretty good day. I was a bit lost on some parts but I was able to figure my way around after a couple google search. Syntax is really the what's my biggest problem. Im sure after this weekend I'll be rolling smooth.
