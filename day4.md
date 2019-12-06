@@ -1,0 +1,1 @@
+Starting to feel like I am falling behind. Today I kind of spaced out after the second break and was kinda didnt get all the information presented. defintely have to watch frontrow this weekend to catch up on what I missed out on. Besides that, Im loving python and can't wait to learn more
